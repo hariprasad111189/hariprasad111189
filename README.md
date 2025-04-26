@@ -31,6 +31,7 @@ Interests
 Contact Me
 
 LinkedIn: https://www.linkedin.com/in/shyamala-hari-prasad-231809325/
+
 Email: shyamalahariprasad11@gmail.com
 
 Feel free to connect with me or check out my projects!
